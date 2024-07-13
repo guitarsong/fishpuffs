@@ -1,4 +1,4 @@
-<img src="https://images2.imgbox.com/a1/f5/qBq9wlHn_o.gif" width=max height=30px>
+<img src="https://images2.imgbox.com/a1/f5/qBq9wlHn_o.gif" width=1000px height=30px>
 <h3>ponytown stuff <img src="https://images2.imgbox.com/a2/76/O2PTp7pF_o.gif" width=25px height=25px></h3>
 
 <i><b>important</i></b> <br/>
@@ -35,4 +35,4 @@
 • newgrounds and related stuff (picos school, riddle school, castle crashers, battleblock, fnf [base game only/not mods], etc) <br/> <br/>
 
 
-<img src="https://images2.imgbox.com/a1/f5/qBq9wlHn_o.gif" width=max height=30px>
+<img src="https://images2.imgbox.com/a1/f5/qBq9wlHn_o.gif" width=1000px height=30px>
