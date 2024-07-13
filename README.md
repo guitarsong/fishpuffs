@@ -2,7 +2,7 @@
 <h3>ponytown stuff <img src="https://images2.imgbox.com/a2/76/O2PTp7pF_o.gif" width=25px height=25px></h3>
 
 <i><b>important</i></b> <br/>
-• sorry if i ignore you ITS NOT ON PURPOSE I PROMISE < /3 < /3 i usually have this running in the background while im doing other stuff <br>
+• sorry if i ignore you ITS NOT ON PURPOSE I PROMISE < /3 < /3 i usually have this running in the background while im doing other things so im not rly paying attention <br>
 • <b><i>pls whisper me if u need to tell me something</b></i>, i probably wont see it otherwise
 
 
