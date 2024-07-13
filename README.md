@@ -3,7 +3,7 @@
 
 <i><b>important</i></b> <br/>
 • sorry if i ignore you ITS NOT ON PURPOSE I PROMISE < /3 < /3 i usually have this running in the background while im doing other stuff <br>
-• pls whisper me if u need to tell me something</b></i> ..... i probably wont see it otherwise
+• <b><i>pls whisper me if u need to tell me something</b></i>, i probably wont see it otherwise
 
 
 <i><b>interactions</i></b> <br/>
