@@ -14,5 +14,9 @@
 </p>
 
 hi <img src="https://images2.imgbox.com/fa/19/vWhkPrPH_o.gif" width="20px" height="20px"> i go by vil or some other/older names and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters   yeah hooray <br/>
-bi, pisces, isfp 6w5, i like video games and stuff <br/>
-cuddle/hide/copy/etc is fine 
+cuddle/hide/copy/etc is fine, no dni list because those dont work <br/>
+whisper if you need me to see your message or i wont see it grr <br/>
+im like if a normal person played ponytown sometimes <br/>
+bi, pisces, isfp 6w5
+
+
