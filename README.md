@@ -13,5 +13,6 @@
   <img src="https://images2.imgbox.com/ed/a8/VC3AracG_o.gif" width="150px" height="20px" title="lights out">
 </p>
 
-hi <img src="https://images2.imgbox.com/fa/19/vWhkPrPH_o.gif" width="20px" height="20px"> i go by vil or some other/older names and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters   yeah hooray
+hi <img src="https://images2.imgbox.com/fa/19/vWhkPrPH_o.gif" width="20px" height="20px"> i go by vil or some other/older names and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters   yeah hooray <br/>
+bi, pisces, isfp 6w5, i like video games and stuff <br/>
 cuddle/hide/copy/etc is fine 
