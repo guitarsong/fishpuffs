@@ -13,10 +13,17 @@
   <img src="https://images2.imgbox.com/ed/a8/VC3AracG_o.gif" width="150px" height="20px" title="lights out">
 </p>
 
+<p float="left">
+  <img src="https://images2.imgbox.com/e1/33/0DtElph6_o.gif" width="97px" height="57px" title="caramelldansen">
+  <img src="https://images2.imgbox.com/5b/b9/45tdar8G_o.png" width="97px" height="57px" title="south park">
+  <img src="https://images2.imgbox.com/8f/cd/QgUVzSEg_o.gif" width="97px" height="57px" title="music">
+  <img src="https://images2.imgbox.com/f0/f2/wzp5Kvjd_o.gif" width="97px" height="57px" title="mp3">
+  <img src="https://images2.imgbox.com/6b/ee/6nLgvTGa_o.gif" width="97px" height="57px" title="fish">
+</p>
+
 hi <img src="https://images2.imgbox.com/fa/19/vWhkPrPH_o.gif" width="20px" height="20px"> i go by vil or some other/older names and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters   yeah hooray <br/>
 cuddle/hide/copy/etc is fine, no dni list because those dont work <br/>
-whisper if you need me to see your message or i wont see it grr <br/>
+whisper if you need me to see your message or i probably wont see it<br/>
 im like if a normal person played ponytown sometimes <br/>
-bi, pisces, isfp 6w5
-
+thanks for watching like and subscribe
 
