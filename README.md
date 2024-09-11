@@ -2,6 +2,9 @@
 <img src="https://images2.imgbox.com/5f/cc/gqyirNIW_o.gif" width="150px" height="20px" title="my back hurts">
   <img src="https://images2.imgbox.com/23/4d/C8P6mt20_o.gif" width="150px" height="20px" title="lemon demon">
   <img src="https://images2.imgbox.com/77/eb/4US051vW_o.gif" width="150px" height="20px" title="dr pepper">
+  <img src="https://images2.imgbox.com/73/a6/CXYICzGa_o.gif" width="150px" height="20px" title="cats">
+  <img src="https://images2.imgbox.com/07/fc/5hEG1cyU_o.gif" width="150px" height="20px" title="bbq">
+  <img src="https://images2.imgbox.com/dd/90/jCexHVOv_o.gif" width="150px" height="20px" title="batman">
   <img src="https://images2.imgbox.com/9f/92/cjMBxb9X_o.gif" width="150px" height="20px" title="mellow yellow">
   <img src="https://images2.imgbox.com/f2/6e/E0EUOaax_o.gif" width="150px" height="20px" title="have a day">
   <img src="https://images2.imgbox.com/4a/2e/v2yZTbn3_o.gif" width="150px" height="20px" title="invader zim">
@@ -24,8 +27,6 @@
 </p>
 
 hi <img src="https://images2.imgbox.com/fa/19/vWhkPrPH_o.gif" width="20px" height="20px"> i go by vil or some other/older names and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters   yeah hooray <br/>
-cuddle/hide/copy/etc is fine, no dni list because those dont work <br/>
 whisper if you need me to see your message or i probably wont see it<br/>
 im like if a normal person played ponytown sometimes <br/>
-thanks for watching like and subscribe
-
+cuddle/hide/copy/etc is fine<br/>
