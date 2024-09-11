@@ -12,7 +12,6 @@
   <img src="https://images2.imgbox.com/f1/d4/7yGJxnDG_o.gif" width="150px" height="20px" title="winter">
   <img src="https://images2.imgbox.com/ed/a8/VC3AracG_o.gif" width="150px" height="20px" title="lights out">
 </p>
-
 <p float="left">
   <img src="https://images2.imgbox.com/e1/33/0DtElph6_o.gif" width="97px" height="57px" title="caramelldansen">
   <img src="https://images2.imgbox.com/5b/b9/45tdar8G_o.png" width="97px" height="57px" title="south park">
